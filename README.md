@@ -9,7 +9,7 @@
 # 1\. Chứng minh tài chính là gì?
 
 # Chứng minh tài chính là việc bạn hoặc người bảo trợ (cha mẹ, người thân) cung cấp bằng chứng cho thấy có đủ khả năng chi trả học phí, sinh hoạt phí và các khoản chi tiêu liên quan trong suốt thời gian học tại Úc. Điều này giúp Lãnh sự quán đảm bảo rằng bạn không rơi vào tình trạng khó khăn tài chính khi du học, tránh việc phải làm thêm quá giờ hoặc vi phạm pháp luật.
-
+Xem thêm: https://dichvutaichinh.vn/chung-minh-tai-chinh-du-hoc-uc.html
 # 
 
 # 2\. Cần chứng minh bao nhiêu?
